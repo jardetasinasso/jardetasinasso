@@ -4,3 +4,4 @@
 - 💞️ liguagem html, java, e css
 - 📫 Email: jardel.tasinasso@escola.pr.gov.br
 ola sou o aluno jardel tasinasso e estudo pensamento computasional,estamos aprendendo o github
+https://github.com/jardetasinasso/turma-1d.githttps://github.com/jardetasinasso/turma-1d.githttps://github.com/jardetasinasso/turma-1d.git
